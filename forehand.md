@@ -1,0 +1,255 @@
+trunk power: Two handed forehand, hitting against the wall at high speeds, and "hip snap shot" all prove that I had discovered this before.  Apply to serve now, and backhand. 
+
+Push on inside step. Set set your foot at 45 degrees with the weight on the inside step
+
+Sandbag/Sofie throw.  What do have to do to make it feel like you could really toss far?
+
+
+Sine Curve
+==========
+* Don't let leveraged wrist break down at the point of contact. Bongo slap into leveraged wrist, or rotate forearm in more more tubelike fashion... really?  Or is this all solved by the Sine curve?
+* Producing racquet head speed with very little effort.It's possible to produce  
+racquet head speed using almost no effort;  using the s curve feeling on the forehand produces a 
+small swoosh with almost no effort and the wrist folds and unfolds into the leveraged position.  
+Try to get the same feeling on the serve, use film to compare wrist movement.
+
+Kenetic Chain & Rotation
+========================
+* Rotate shoulder first then into the hit, then hit,  from FeelTennis
+* Screwing into the ground is not enough: It has to be done for a reason.   It's all about getting the feeling of very small movement and counter movement that produces a lot of power. Stop the stroke at moment of impact.  Doing this on the back hand and forehand should produce a very short stroke with effortless pop, great precision and consistency.   The whole hit feels like very springy.  Also works for the volley.
+* The law of contrary motion,Jack Brody, concept of contrary motion.
+* Sit in a chair and wait for the ball:  The Jimmy Conners way:  Sit in a chair facing forward sit in a chair facing sideways signature on the backend but always with the body right
+then stand up through the shot
+* Stay completely vertical and upright see you can see better move better and rotate faster
+* Like throwing a sack of potatoes really far:The proper kinetic chain should feel like tossing a sandbag or sack of potatoes really far are tossing shovelful of snow as far as you can that requires to truly activate the lower body
+
+
+Preparation
+===========
+* Feeling of gathering speed well before impact (wind up): Gathered speed well before the impact point. But, not by taking the racket too far back gathers speed in front of the chest and gather lots of speed before hitting the strikes zone
+* Say it rock-a-bye BABY to yourself as you strike the ball at baby
+* The rhythm of stroking comes from matching rhythm to the other persons hit and flight of ball.  Broudy
+* Sit in a chair
+* Stay completely vertical and upright see you can see better move better and rotate faster.Stay upright and vertical  for better vision and movement
+* It's all about the first 3 feet of ball flight
+
+Intent
+======
+* It's better to make the wrong decision early than to make no decision at all
+* It's all about the first 3 feet of ball flight
+
+Footwork
+========
+* Stay completely vertical and upright see you can see better move better and rotate faster,Stay upright and vertical  for better vision and movement
+* Reach OUT for the wide ball and fall into the hit, slalom drill.  See dougherty
+
+
+Questions & Experiments 
+=======================
+How do I generate enough racquet head speed without arming it and produce enough racquet head brush speed with the right path and the right moment.  Sine curve?  Practice it with shadows and film it. 
+Wrist is forced back by forward rotation, should not feel artificial: Wrist gets laid back by the forward rotation, then snaps into bongo slAp or brush
+
+
+Very loose hands:  This ensures that it's coming from the legs and that timing is good, because you can't get away with arming it late. Very loose hands on all strokes to ensure spin, but really as a check that the coil is driving the stroke, + soft power on volley  to take off power.
+Coil before the ball crosses the net to ensure ability to take the ball out in front and drive through it.
+
+Good timing is not about impact point, but about winding and unwinding at the right time
+
+The bongo slap should feel like you are imparting spin on top of the ball and the legwork should be together speed for this move and nothing else
+The racket drop prior to the legwork going in full force is just gather extra momentum and is a little bit part of it
+I have to learn to do the whole thing very fast
+
+Flatten slice with better angle: Face lean more to target  Hit forehand slice out to the side like I do wit backhand slice
+
+Dougherty: Not a doorknob but a wristy wave use leverage band.  Heavy spin is always (usually) producers by taking the ball on the rise (?)
+
+Make the slice a moment of impact hit rather than a stroke.
+
+
+Step on a bug, then squish it, or put out a cigarette butt in dry grass.
+
+Moment of impact hit rather than stroke. Sine curve fixes that. 
+
+Windup can be very fast:Can also be slow and calculated, try to to wind before ball bounces 
+
+Still throw racquet to 45 but aim just past net post with more forward angle
+
+Spagetti hands drill great for working on timing .
+
+Start to integrate footwork patterns with this early set up... The screw be force the bounce.   
+
+Experiment with jumping due to this new safer feeling trajectogy.  Relentlessly searc and trac down bAll to spin hard so I can got to net. Practice inside step for coming forward
+
+Engage wrist for more power and speed on forehand:  
+Better kinetic chain; stay with sideways orientation but tilt feet to side to side while imaging speed chain at work, then go faster and faster.   Try speed chain at different heights.
+Apply same feeling to serve.BUT try engaging the wrist in a short powerful punch on the forehand.  Stay sideways, make the shortest swing possible while engaging and active yet solid wrist to make go very fast.  AMAZING NEW FEELING.   try using this same feeling to create more topspin, now combine it with kinetic chain and shoulder torque.
+Try utilizing the wrist in the same way on the seve.  Short punch with wrist engaged.  Bongo slap vs Sine Curve
+
+Work on clearing out of the way very fast so i have I enough time to wind up.  Slalom drill, + 3 steps to take a short ball,work on backhand walking step
+
+More good footwork will mean more opportunities to practice good full body timing. 
+
+Don't lean over when clearing out of the way, stay upright.   Also, stay upright when doing the slalom drill
+
+Get low on the slalom drill on all shots and slalom drills, sit in a chair, but sit facing forward and rotate body sideways
+
+Watch incoming vertical trajectory
+
+using body and not arming the ball frees the momentum of the arm to make adjustements along the way, and is thus more precise
+
+Try tightening the core when striking the ball to see what happens. 
+
+There are two types of shots: There is a defensive yet aggressive shot that is very spiny by coming up chest sideways at 45, easy to do, but should still feel like throwing a sack of potatoes, can still flatting out by close face.  Then there is a precision shot where I 'm still at 45 but have time to hit it way out in front, guide ball towards target, contact point is very far out in front and I feel I have plenty of time to get the ball back early and in the right fashion to line up the ball and wind the body up with proper timing to impact way out in front.
+
+Practice sitting in a chair facing forward but still turn shoulders sideways, with front foot at 45*
+
+5 keys + IMPORTAN new feelin about winding up while moving:5 keys going to todays hit were:  Stay Vertical, Line up ball with Neutral Wrist, Wind the Spring,  Bongo Slap, Glide to recover.  These 5 can all be drilled down, and they should be. For example, its Bong slap with good wind up timing can happen way out in front to get a feeling of great directional control, But I also get way more brush it's easier to hit a safe shot when I'm bongo brushing out the the 45^.  During mini tennis, I got awesome feeling of arming naturally straightening as I go out the 45, it wasn't done on purpose, it just happened as a result of better orientation. 
+
+Neutral wrist did not work nor feel important, is the feeling of beach ball containment of the stroke. 
+
+The proper kinetic chain should feel like tossing a sandbag or sack of potatoes really far are tossing shovelful of snow as far as you can that requires to truly activate the lower body
+
+Feeling of gathering speed well before impact (wind up):Gathered speed well before the impact point. But, not by taking the racket too far back gathers speed in front of the chest and gather lots of speed before hitting the strikes zone
+Say it rock-a-bye baby to yourself as wind up to you strike the ball just like wind up for big baby throw
+
+The bongo slap should feel like you are imparting spin on top of the ball and the legwork should be together speed for this move and nothing else
+The racket drop prior to the legwork going in full force is just gather extra momentum and is a little bit part of it
+I have to learn to do the whole thing very fast
+
+Always work on safe shot as long as you don't' arm it, generate spin by going out to the 45 and brushing up.
+
+Good timing is not about impact point, but about winding and unwinding at the right time
+
+Clearly the neutral wrist is a good feeling, but the hand must really drop early and stay chest side for this to work. Don't let the arm get back. 
+
+MOST IMPORTANT:  Today I discovered the secret to good timing:  Good timing means winding the spring early, both on ground strokes and the serve, and this means wind early, and WIND UP WHILE YOU MOVE.  Felt great!
+The slice is a stab. 
+Tried the jump backhand, worked well. Stab slice was great today.   Serve with a feeling of an earlier and thorough wind up was relaxed and powerful, stay upright to initiate. Keep left hand involved. 
+There are two  special feelings on the forehand.   1) Staying side was and starting acceleration very early, like the day I pounded the ball at Mark Chew.  2) VERY SPECIAL feeling up being wound up and ready and having plenty of time to unwind so that the hit gets perfectly timed way out front.  This caused a feeling of great control and easy power, but the timing must be excellent. 
+Stay sideways on mini tennis forehand!  Wind early, but be wound tight at the right time so I can unwind at a moments notice at exactly as the ball is still quite far from the optimal strike point way out front, it should feel like there is plenty of time to uncork out to it. 
+Recursive Sequencing.Wind up while you move.  Wind up early. Sideways orientation. WIndo up early on serve. Explore the deeper meaning of timing.
+
+Pre turning the shoulders early is the thing that allows you to preload the legs:
+Like throwing sofie to sleep, in order to really throw, I have to turn my shoulder which allows me to really load my outside leg for the big forward toss. The early turn and the early load. 
+
+You drive out to 45 hard but still be very out in front with the impact point for more spin power and precision
+
+Shorter spring and release on forehand:Try extending shoulder forward even though orientation remains sideways with lots of spin
+Backhand:  focus on moment of impact with sideways orientation spin, but pick up speed to that moment well before it .   Watch first 3 feet   Turn shoulder early and far so I can turn shoulder into shot.  Stay upright.  Extend out to target with shoulder.     Search for spring feeling
+Fh and bh.   Very soft hands!!!
+
+Leaning into shot is not just to get more power, but also to get a cleaner contact.    If you see the ball early, fall out to get it out there where contact is good.
+The motivation to see that ball early should be that it allows for that out  front yet powerful contact that feels controlled because racquet is coming at the ball "sideways" for more spin and no chance of  scooping
+
+Twist at the core: But keep hips locked, really feel midsection getting screwed up tight, keeping foot at 45
+hould I do this on backhand too?
+
+experiment: Like in the golf swing, the foot and leg twist must purposed to moving not just the hip but the shoulder, as if holding a golf club across the chest and rotate, that standard golf drill. 
+
+Also, do not sink, then twist foot, or just twist foot, but figure out how to time the leg bend so it becomes part of the twist and creates a much more powerful twist and faster shoulder move.  Figure out how to do the same with the serve.
+
+Don't just squish the bug, but bury it deep in the sand.  How am I squishing during the serve?
+
+
+How do i prepare for shoulder rotation while moving and running.  Seeing the ball early enough to get in position to twist and rotate, that is the game within the game.
+
+The most important fundamental :   Screw and unscrew the foot The most important fundamental :   Screw and unscrew the foot
+
+Lean into it: Fall Orlean into the shot at the 45° angle don't arch back as I hit the ball
+Even try this azide screwing one leg finish in one leg
+
+Del potro high take back wit neutral wrist very relaxed hand = huge power
+
+Feel face going out to 45 not edge (Sine  Curve should make that happen automatically)
+
+To not over swing and collide at impact , it's only possible to catch racquet comfortably if you do this
+Foot steps forward to balance not to make more power so it happens after the hit
+Run forward and twist body to get to net
+
+On all strokes, but esp backhand, and serve too, get sense that but cap is pulled towards 45 in a very quick snap.  keep all strokes flatter and feel like you are covering the ball. 
+You can clearly see Fed doing this:
+http://www.youtube.com/watch?v=oUIa6-wQADA
+Key to getting racquet tip down on serve is to let hand be loose.  Finish at impact.
+
+Use twisting ready steps. 
+
+Forehand crazy cut slice: Catch it way out in front    !!!!  Crazy side spin
+
+It's all about the big early shoulder turn and sink, chris wheeler style: I get a feeling of turning shoulder more fully  while keeping the rackquet going in an arc (don't let the loop feel stuck at any point!), and while doing this i'm sinking while setting the foot at 45 to start the drive to 45.   This big shoulder turn also happens on the serve now. 
+On the backhand, it's all about keeping the loop going while driving the leg to a SHORT point of impact, now a swing, just like Carlo said.  Same for slice.  So it feels like swing ends very early, and this has a drastic impact on precision and speed + overall feeling of easy power without shoulder pain.
+
+Built in recovery steps needs more analysis and work. 
+Ping pong excellent drill for learning drip drive, always warm up with it.  A+
+Drip drive, get great power when driving forward with right leg while winding trunk around it like a spring. 
+Drip drive, don't get jammed, reach out and forward for it.  Go get it, don't wait for it.
+
+Throw sandbags to the netpole: Bend on wrist can point same way, then into slap
+
+Force the laid back wrist, the try timing it by being relaxed with with forceful  timing
+
+Throw the sandbag hard with a no need to bring it way back:But with a deep knee bend and shoulder turn.  Spin to 45.   Try rhythm steps in place to internalize 123 load hit, spin with face down
+
+Incentive for better timing: Way Out front means way more spin, this should Provide incentive for turning the shoulders and setting up early  Cycle of good vs cycle of bad
+
+---------- Segura tennis tactics ---------
+* Before you learn tactics you need ball control
+* Hitting hard,  deep,  short and high at will with ball control you can exploit weaknesses
+* Knowing all the shots enables you to force the opponent to play a game he is not used to
+* On key points the low short return is a great play
+* Get your first serve in on big points
+* The nature of the game is to draw a short ball from your opponent
+* Lob early and often
+* Pressure the opponent’s second serve
+
+VEry loos hands:This ensures that it's coming from the legs and that timing is good, because you can't get away with arming it late. Very loose hands on all strokes to ensure spin, but really as a check that the coil is driving the stroke, + soft power on volley  to take off power.
+
+Coil before the ball crosses the net to ensure ability to take the ball out in front and drive through it.
+
+Contact point happens right in the center of the chest. 
+
+Pull racqeut across the chest Dougherty style
+
+Convex or bowed arm at beginning  of serve and forehand is HUGE, but only if it's time right and not too late.  Sine curve it
+
+Get the feeling of a continuous loop that doesn't stop, and this has to happen while winding the feet hip and shoulders
+
+Producing racquet head speed with very little effort.  It's possible to produce  racquet head speed using almost no effort;  using the s curve feeling on the forehand produces a small swoosh with almost no effort and the wrist folds and unfolds into the leveraged position.  Try to get the same feeling on the serve, use film to compare wrist movement. 
+
+Also, keeping the racquet high like del Potro and trying to make the racquet drop a big part of the acceleration to the ball.
+
+-----
+Can also be slow and calculated, try to to wind before ball bounces 
+
+Still throw racquet to 45 but aim just past net post with more forward angle
+
+Heavy spin is always (usually) producers by taking the ball on the rise (?).  Pull racquet across chest for longer strike zone and better control, but how is this done without opening the face, scooping forward?
+
+Start to integrate footwork patterns with this early set up... The screw be force the bounce.   
+
+Experiment with jumping due to this new safer feeling trajectogy.  Relentlessly searc and trac down bAll to spin hard so I can got to net. Practice inside step for coming forward
+
+-----
+
+5 keys going to todays hit were:  Stay Vertical, Line up ball with Neutral Wrist, Wind the Spring,  Bongo Slap, Glide to recover.  These 5 can all be drilled down, and they should be. For example, its Bong slap with good wind up timing can happen way out in front to get a feeling of great directional control, But I also get way more brush it's easier to hit a safe shot when I'm bongo brushing out the the 45^.  During mini tennis, I got awesome feeling of arming naturally straightening as I go out the 45, it wasn't done on purpose, it just happened as a result of better orientation. 
+
+Neutral wrist did not work nor feel important, is the feeling of beach ball containment of the stroke. 
+
+Clearly the neutral wrist is a good feeling, but the hand must really drop early and stay chest side for this to work. Don't let the arm get back. 
+
+MOST IMPORTANT:  Today I discovered the secret to good timing:  Good timing means winding the spring early, both on ground strokes and the serve, and this means wind early, and WIND UP WHILE YOU MOVE.  Felt great!
+
+The slice is a stab. 
+
+Tried the jump backhand, worked well. Stab slice was great today.   Serve with a feeling of an earlier and thorough wind up was relaxed and powerful, stay upright to initiate. Keep left hand involved. 
+
+There are two  special feelings on the forehand.   1) Staying side was and starting acceleration very early, like the day I pounded the ball at Mark Chew.  2) VERY SPECIAL feeling up being wound up and ready and having plenty of time to unwind so that the hit gets perfectly timed way out front.  This caused a feeling of great control and easy power, but the timing must be excellent. 
+
+
+Stay sideways on mini tennis forehand!  Wind early, but be wound tight at the right time so I can unwind at a moments notice at exactly as the ball is still quite far from the optimal strike point way out front, it should feel like there is plenty of time to uncork out to it. 
+
+
+Recursive Sequencing
+
+Wind up while you move.  Wind up early. Sideways orientation. WIndo up early on serve. Explore the deeper meaning of timing.
+
+Fire core for every footwork  move and every stroke if possible.  Start getting the feeling for what happens when your movement balance and stroke production when you fire the core, which requires practice off the court. Also, snap the wrist over earlier or extra spin, but make sure this is generated by legs and not the arm - not artifially generated by trying too hard.  Should be habitualized but check with camera first to see if valid.
