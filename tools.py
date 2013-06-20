@@ -1,7 +1,7 @@
 import json
 from pprint import pprint
 
-def dict_from_courses():
+def dict_from_courses_md():
     # 
     '''
     id:1,
@@ -49,5 +49,6 @@ def dict_from_courses():
         
 
 if __name__ == "__main__":
-    dict_from_courses()
+    pass
+    #dict_from_courses_md()
     
