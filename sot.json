@@ -1,11 +1,45 @@
-
-
-{	id:1,
-	month:1,
-	stroke:"all",
-	"title": "Month 1: Lecture-Introduction to the 45 degree angle"
-	"url": "http://www.schooloftennis.net/start-here/instruction/quarter-1/month-1-introduction-to-the-45-angle/"
-	"video": "MO1Begin_45Degree"
-	"type": "lecture"
-	"description": "Our course begins with the concept of the 45° angle, geometrically speaking, the “optimal contact point ” for every shot in the game. It all starts here. Pay close attention and you’ll soon understand how this one concept will begin to transform your game, and the games of your students."
-}
+{"stroke": "all", "type": "lesson", "id": 1, "name": "The Optimal Contact Point", "month": 1}
+{"stroke": "all", "type": "lesson", "id": 2, "name": "Two handed warm-up", "month": 1}
+{"stroke": "volley", "type": "lesson", "id": 3, "name": "Line up your volleys", "month": 1}
+{"stroke": "all", "type": "lesson", "id": 4, "name": "Bump up and across", "month": 1}
+{"stroke": "serve", "type": "lesson", "id": 5, "name": "Serve and overhead", "month": 1}
+{"stroke": "all", "type": "drills", "id": 6, "name": "Slice drill", "month": 1}
+{"stroke": "all", "type": "drills", "id": 7, "name": "Clacker Drill", "month": 1}
+{"stroke": "serve", "type": "drills", "id": 8, "name": "Serve on Knees (The Right Way)", "month": 1}
+{"stroke": "all", "type": "drills", "id": 9, "name": "Pros do it at the 45^", "month": 1}
+{"stroke": "all", "type": "drills", "id": 10, "name": "How to Figure 8", "month": 1}
+{"stroke": "all", "type": "drills", "id": 11, "name": "The Universal Stroke", "month": 1}
+{"stroke": "all", "type": "drills", "id": 12, "name": "8-Board Groundies", "month": 1}
+{"stroke": "volley", "type": "drills", "id": 13, "name": "Universal Volley", "month": 1}
+{"stroke": "all", "type": "drills", "id": 14, "name": "Move with the Ball", "month": 1}
+{"stroke": "serve", "type": "drills", "id": 15, "name": "Serve using the Figure *", "month": 1}
+{"stroke": "all", "type": "drills", "id": 16, "name": "Match Warmup", "month": 1}
+{"stroke": "all", "type": "drills", "id": 17, "name": "Drill - Basketball Bounce", "month": 1}
+{"stroke": "all", "type": "drills", "id": 18, "name": "Drill - Super 8", "month": 1}
+{"stroke": "all", "type": "drills", "id": 19, "name": "Figure 8 Conditioning", "month": 1}
+{"stroke": "all", "type": "drills", "id": 20, "name": "Drill - Racquet Bump Up", "month": 1}
+{"stroke": "all", "type": "drills", "id": 21, "name": "Core-dination", "month": 1}
+{"stroke": "forehand", "type": "drills", "id": 22, "name": "Forehand", "month": 1}
+{"stroke": "backhand", "type": "drills", "id": 23, "name": "Backhand (One hander)", "month": 1}
+{"stroke": "backhand", "type": "drills", "id": 24, "name": "Backhand (Two hander)", "month": 1}
+{"stroke": "volley", "type": "drills", "id": 25, "name": "Volley Effortlessly", "month": 1}
+{"stroke": "all", "type": "drills", "id": 26, "name": "Power Overheads", "month": 1}
+{"stroke": "forehand", "type": "drills", "id": 27, "name": "Forehands on the run 101", "month": 1}
+{"stroke": "all", "type": "drills", "id": 28, "name": "Spank the return", "month": 1}
+{"stroke": "all", "type": "drills", "id": 29, "name": "Drill - drop feed", "month": 1}
+{"stroke": "forehand", "type": "drills", "id": 30, "name": "Inside Out Forehand", "month": 1}
+{"stroke": "all", "type": "drills", "id": 31, "name": "The Service Wave", "month": 1}
+{"stroke": "all", "type": "drills", "id": 32, "name": "Horizontal/Vertical Contact", "month": 1}
+{"stroke": "forehand", "type": "drills", "id": 33, "name": "Compress the forehand", "month": 1}
+{"stroke": "forehand", "type": "drills", "id": 34, "name": "Both wings on the forehander", "month": 1}
+{"stroke": "all", "type": "drills", "id": 35, "name": "Two hander, tuck into your coild", "month": 1}
+{"stroke": "all", "type": "drills", "id": 36, "name": "Pull up into the serve", "month": 1}
+{"stroke": "volley", "type": "drills", "id": 37, "name": "Volley balance", "month": 1}
+{"stroke": "all", "type": "drills", "id": 38, "name": "Stability on overheads", "month": 1}
+{"stroke": "all", "type": "drills", "id": 39, "name": "Shourt court lefty", "month": 1}
+{"stroke": "all", "type": "drills", "id": 40, "name": "Sword and shield", "month": 1}
+{"stroke": "all", "type": "drills", "id": 41, "name": "8-board training", "month": 1}
+{"stroke": "serve", "type": "drills", "id": 42, "name": "Serve return sway", "month": 1}
+{"stroke": "all", "type": "drills", "id": 43, "name": "Two racket  drill", "month": 1}
+{"stroke": "all", "type": "drills", "id": 44, "name": "One man clacker", "month": 1}
+{"stroke": "all", "type": "drills", "id": 45, "name": "Cat's Cradle", "month": 1}
