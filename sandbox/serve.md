@@ -1,6 +1,8 @@
 serve.md
 ========
+Serve with a feeling of an earlier and thorough wind up was relaxed and powerful, stay upright to initiate. Keep left hand involved. 
 
+Convex or bowed arm at beginning  of serve and forehand is HUGE, but only if it's time right and not too late.  Sine curve it
 Serve
 Setup, wrist breathe means big exhale,
 Toss higher.jump way into the court.  Finish leaning over with counter balanced kick back.  Get the wrist into it properly.

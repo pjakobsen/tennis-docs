@@ -204,8 +204,6 @@ Key to getting racquet tip down on serve is to let hand be loose.  Finish at imp
 
 Use twisting ready steps. 
 
-Forehand crazy cut slice: Catch it way out in front    !!!!  Crazy side spin
-
 It's all about the big early shoulder turn and sink, chris wheeler style: I get a feeling of turning shoulder more fully  while keeping the rackquet going in an arc (don't let the loop feel stuck at any point!), and while doing this i'm sinking while setting the foot at 45 to start the drive to 45.   This big shoulder turn also happens on the serve now. 
 On the backhand, it's all about keeping the loop going while driving the leg to a SHORT point of impact, now a swing, just like Carlo said.  Same for slice.  So it feels like swing ends very early, and this has a drastic impact on precision and speed + overall feeling of easy power without shoulder pain.
 
