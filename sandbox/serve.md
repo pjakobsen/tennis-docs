@@ -34,3 +34,15 @@ Leaning into shot is not just to get more power, but also to get a cleaner conta
 Get the leaning feeling just like on the forehand.  
 
 Go for the "pop" sound like on the self feed.  Snap up or to the side to crack on the ball, go for gunshot sound.  This will force the Sine curve
+
+Make sure your shadow swing looks right. 
+
+Film hammer throw
+
+Film slow shadow swing that would produce a very high ball. 
+
+Don't reach or fall back, stay in the tube, or lean forward
+
+Brush with pushing on ball while elbow gets thrown back. 
+
+Stay vertical
