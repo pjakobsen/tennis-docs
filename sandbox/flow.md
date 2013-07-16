@@ -64,7 +64,7 @@ It's a tiny subtle quick little whip like quality that is at the heart of the po
 
 ### The Sword in the Stone
 
-Conventional method of attaining speed is to swing hard towards the target
+
 
 
 
