@@ -1,5 +1,7 @@
 ## Tennisspped Hall-of-Fame Forehand
 
+My Question:  is all this simply keeping wrist neutral on takeback?
+
 ### Part 1: What is the Racket Really Doing in the Impact Zone?
 
 http://blog.tennisspeed.com/2011/05/roadmap-to-hall-of-fame-forehand-part-1.html
@@ -117,6 +119,40 @@ What happens in the Impact Zone, most would agree, is the most important phase o
 ### Part 6: Could Hall-of-Fame Performance be Determined by a Single Movement?
 
 http://blog.tennisspeed.com/2012/05/roadmap-to-hall-of-fame-forehand-part-6.html
+
+FHT = Forehand Transition
+
+"What exactly is the difference between FHT-1 and FHT-2?"
+
+So far, we’ve identified at least 30 distinct micromoves used by the outliers that are largely “missing” from the topspin forehand mechanics of the "non-outliers".  we noticed that there appears to be a single, specific micromove that the fastest and heaviest forehands in the sport consistently demonstrate during the critical phase of FHT. What’s even more interesting is we began to realize that this particular micromove is missing—rather, is not used—by those players whose forehands desert them and break down under the pressure of competing for the sport’s biggest titles.
+
+This specific micromove is ELBOW PRONATION of the racquet arm at the very end of FHT during the fleeting moments when players initiate the forward swing to impact— aka the FFM, or “First Forward Move”. 
+
+**Elbow PRONATION at FFM = FHT-2
+
+Elbow SUPINATION at FFM = FHT-1 **
+
+The “natural motion” of the racquet arm in a tennis forehand naturally causes the racquet hand to supinate – meaning the palm of the hand will open toward the sky as you swing forward to impact. Therefore, if you don’t compensate for the hand supination by intentionally pronating the hand – pointing your palm downward toward the ground – your hand will deliver the racquet face in an open position at impact. 
+
+In other words, when players pronate their racquet hand just before they start their forward swing, their pronated racquet hand position enables them to control the natural supination of the racquet hand (and arm) during the forward swing and control the angle of the racquet face as it approaches impact.
+And, it appears that that achieving this pronated position before FFM greatly reduces the amount of conscious effort on the player’s part to create – “on the fly” – the closed racquet position at impact that’s associated with maximal topspin production.
+o, what is the relationship between racquet hand pronation at FFM and maximal force production by the rotator cuff muscles – specifically the contraction of the subscapularis muscle used to create the internal rotation of the shoulder that propels your (racquet) arm forwards to impact?
+The relationship between these two movements and how it influences force production goes like this:
+By pronating the racquet hand at this stage, this position prevents "premature" external rotation of the shoulder – because external rotation (“ER”) of the shoulder prior to the internal rotation (“IR”) of the shoulder enables you to tap into the force-multiplying effects of what’s called the Stretch-Shortening Cycle, or “SSC”.
+
+Applied to the topspin forehand, there is a 50 millisecond “window” of opportunity to produce maximal force after ER creates that pre-stretch of the IR muscles.
+
+The “optimization” the SSC of the rotator cuff is but one of several key SSCs that operate in a top-level topspin forehand.
+
+The vast majority of tennis players hit their heaviest topspin forehands by attempting a wide variety of body movements to create the stroke geometry associated with high-speed, high-spin forehands. The commonality of the topspin-amplifying technique/movements used by the vast majority of players is that these involve consciously manipulating the racquet hand and arm during the 100 or so milliseconds before impact.
+ 
+These contrived movements commonly include such movements known as: “windshield-wipering”, ” wrist action”, “wrist rolling” or “wrist flipping”, “brushing up at impact”, “reverse finishing", etc. , etc., etc..  All of these movements involve highly conscious, and often last-second, timing-intensive racquet manipulation where required stroke consistency can only be achieved with an inordinate amount of practice time that’s only really available to serious competitive players.
+
+You see, if you understand the “natural motion” of the racquet arm in the forward swing to impact of a tennis forehand, and combine this with a firm understanding of the “impact geometry” that’s needed to create large amounts of topspin, we can drastically reduce the number of variables to adjust (as well as the amount of practice time) if you’re seeking more topspin (and speed) on your forehand to these three essential concepts:
+1)      You need to pronate the elbow of your hitting arm before starting the forward swing – to the same extent as the players pictured earlier—to compensate for the natural supination – or opening of the hand causing the palm to face skyward – of the racquet elbow /hand to ensure that you can deliver the racquet face in a closed position – i.e. racquet tilted forward—at impact.
+2)      You can start to experiment with how steep or how shallow your upward swing path affects the resulting shot. The simplest way to do this is to start experimenting with how far below the impact point you start your forward swing. You might also experiment with the height at which your racquet hand finishes after impact. You may find that you produce more topspin when you shallow out your overall swing path and use a finish lower versus swinging more steeply upwards and finishing high – when the racquet hand finishes up at head-height or higher. And, you should note that this concept effectively runs counter to the “how topspin is produced” paradigm ingrained into the “stroke knowledge” of most tennis players and coaches possess.
+3)      You need to learn when and how to pronate your hand – or “re-pronate” is the more appropriate description—as you accelerate your racquet through the impact zone. Elbow Pronation in the impact zone is how you can support, stabilize and maintain the forward tilt of the racquet face at impact, especially when impact is made off-center. Elbow Pronation of the racquet arm at FFM and just prior to impact creates maximum racquet speed and acceleration to maximize energy transfer to the ball. In other words, Elbow Pronation plays a crucial role in maximizing both spin production and ball speed.
+
 
 ### Part 7: FHT-3 - The Past Lives On (But Only Barely)
 
