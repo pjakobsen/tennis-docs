@@ -40,6 +40,37 @@ Keep the hand very light and get very close to the ball.   You should feel a lit
 
 It's a tiny subtle quick little whip like quality that is at the heart of the power game.
 
+#Actual Course
+
+## Elements of Flow 
+
+1. Dynamic Ready Position
+2. Core Energy
+3. Lock and Key
+4. The Sword in the Stone
+5. Dynamic Contact Awareness
+6. Whip-Drive, A Deeper Look
+7. Fire in Napa, Part 1
+8. Fire in Napa, Part 2
+	
+## Key Positions & Advanced Flow Training
+
+1. Training & Kata Introduction
+2. Serve Training
+3. Forehand Training - Available 7/18/13
+4. Backhand Training - Available 7/18/13
+
+
+
+### The Sword in the Stone
+
+Conventional method of attaining speed is to swing hard towards the target
+
+
+
+
+
+
 
 
 
