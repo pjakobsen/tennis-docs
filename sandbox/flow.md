@@ -2,6 +2,16 @@
 
 ### Free Introductory Videos
 
+Kinetic Chain:  Lagging behind, force and counter force, law of opposing forces
+
+Applied Biomechanics: Concepts and Connections: Concepts and Connections
+ By John MacLester, Peter St. Pierre
+
+#### Summary
+
+1. Torquing Action
+2. 
+
 #### 1. Letting Go and Speeding Up
 
 You have to let go and stop thinking but need to develop skills first before getting to the point where we can let go, piano, tennis, anything.
@@ -17,7 +27,7 @@ Progression is simply then work with he body to add a little more power.
 Focus is on torquing action at impact.  the focus is in the flipping action and the turn of the ball
 Come at the ball from the side and turn it
 
-To get this feel of turning and pushing, choke up on racquet, push ball into the net tape, then rool the ball over the net tape.
+To get this feel of turning and pushing, choke up on racquet, push ball into the net tape, then roll the ball over the net tape.
 Feel the handle pushing forward while the tip is held back, then roll.  What will happen is the handle will 
 actually come back tip shoots forward.  A quick reversal of positions.  The shoulder and elbow turn up during this move. 
 

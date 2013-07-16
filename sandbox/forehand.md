@@ -1,4 +1,7 @@
+There are two components to the stroke, the accelleration and the drive.  Whip to 45 to get racquet movement, drive to give it directional control and torque.  The whip drive
 
+
+Wrist sometimes ends up contorted.  Why?
 
 
 
