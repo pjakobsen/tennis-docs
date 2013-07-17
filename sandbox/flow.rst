@@ -136,8 +136,41 @@ Suppleness of manipulating the ball is in the fingers because they can give and 
 Now introduce tennis ball. Certain softness and suppleness coming out of contact.
 **Practice crossover dribble of tennis ball, feeling surface of ball**  drill
 **Turn and catch ball to develop catch-throw feel (like dribble)** drill, rotating around surface of ball while moving it as little as possible during the turn (dribble is catching and throwing 
+
 Turn and drive ball forward drill, push to the side and rotate
-**Feel push to side and drive with shoulder in this little sling of ball with racquet** drill  Really important drill!
+
+* **Feel push to side and drive with shoulder in this little sling of ball with racquet** drill  Really important drill!
+* **Push out to side and flip the ball--feel ball travel from tip to throat of racquet**
+* **On topspin shot, we start from inside of ball and push to the outside-drive occurs on outside of ball**
+* **Great players are "throwing" the ball out of the racquet in a short power burts on ball--not swinging through the ball**
+* **We coil so we can uncoil and put more energy into "catch-and-release" of ball.**
+* **Feel like you are throwing from mid-section of body**
+* **We coil to prepare for throwing action**
+Feeling the ball beside you...
+* **Great players feel the ball as they move with the ball**
+Fed drills with pitched balls
+* **Feel inside edge of ball**
+* **Good players turn back with the ball, saving the hit**
+* **Feel rotation and drive of shoulder, ending with shoulder near side of face.**
+* **Feel different sides of ball, from top, to inside edge, then a push out and rotation from shoulder and body--modern forehand!**
+* **Rowers wait until oar reaches its maximum resistance point in the water, the water feels like concrete, and then they excert force**
+* Rowers are saving their stroke for a moment of maximum resistance
+* Great playes find that moment of maximum resistance, and "locking on ball" and pushing and "turning on it" with shoulder and body.
+
+
+
+Wrap-up. The timing of dynamic contact awareness
+
+Winding up around sphere around body 
+
+* **We save the "hit" for the moment of maximum resistance--the moment we "turn on the ball".**
+ We are pushing into contact points, excert energy into them .  Getting into  a chair. 
+
+ * **Skier plants pole - becomes a contact point the skier can rotate body on**
+
+
+
+
 
 
 
