@@ -92,6 +92,19 @@ Core Energy
 Lock and Key
 ------------
 
+Length:  18:34
+
+* 5:45 - The "key" in our stroke is NOT the racquet, but a feel coming out of the hand. 
+* 6:25 - We feel "key insertion" and push and turn coming out of our base index knuckle.
+* 10:00 - Come into lower inside of the ball with index knuckle as you turn and push on ball. 
+
+Drive is coming from turning. 
+13:10 I can feel my left hip pull
+
+12:49 - Our speed element, our whip element is coming from that change in direction.
+16:50 Stepping stone release on serve.
+
+* 18:30 Proper "lock and key" dynamic unlocks the blend of speed and drive we're looking for in whip drive. 
 The Sword in the Stone
 ----------------------
 
@@ -171,18 +184,52 @@ Winding up around sphere around body
 
 
 
-
-
-
-
 Whip-Drive, A Deeper Look
 -------------------------
+Video Length: 28.54
+
+* Drive is steering stroke element that comes from large muscle group, particularly the shoulder. 
+* 
+
+A fully developed stroke has speed, spin, touch, and drive
+Be able to 	move the racquet into the ball in a way that unlocks the shoulder drive on the ball
+* 1:46 We want speed going in and drive on the ball
+* 
+
+Speed is very light coming out of the hands, we're going to look at how to insert that speed a certain way so that it unlocks the drive on the ball
+
+* 3:34 Common mistake is to put whip into ball too directly
+* 7:08 We release the whip action out to the side
+* 9:42 Drive is the feel of racquet settling into correctly, and then accelerate the shoulder correctly.
+* 10:25 Internal Shoulder Rotation that produces fast throwing action is fastest part of the human body.
+* 11:48 We should feel a "letting go" of racquet going into ball and a disappearing racquet feel. 
+* 20:18 We need a roadmap to go where we want to go
+
+25:30 Excellent serve explanation, combining whip and drive
+
+* 26:26 Use light whip action to open up shoulder drive
+
+All these parts have to work together for any of these parts to work well. 
+
+* 28:32 We need to maximize and integrate all parts of the stroke 
+
 
 Fire in Napa, Part 1
 --------------------
 
+17:05
+
+0:38 Tennis Fire: Exlplosive Fire of movement and contact, and Fire in the belly to compete and excel	
+
 Fire in Napa, Part 2
 --------------------
+
+Length 37:40
+
+Summary:  Footwork 
+
+* 6:24 - At contact, we co-ordinate our maximum effort at a point of maximum resistance with maximum leverage. 
+* 10:42 - Jump, land, push, and drive
 
 Key Positions & Advanced Flow Training
 ======================================
