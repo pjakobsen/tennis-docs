@@ -237,8 +237,54 @@ Key Positions & Advanced Flow Training
 3.1 Training & Kata Introduction
 --------------------------------
 
+3.11 Kata Introduction
+----------------------
+
+Length: 2:40
+
+* 00:50 - Katas are specific movements within an action (serve) that we can practice and perfect
+
+3.12 Nature of Fluidity
+-----------------------
+
+* 0:58 - We need to integrate many different movements and feels into a single action -- this gives us fluidity.
+* 2:18 - Segmentation allows us to study how each part of the body functions and feels. 
+
 3.2 Serve Training
 ------------------
+
+3.2.11  Kata Training :)
+-----------------------
+
+Length: 47.42 
+
+Each part of the body has a different function; we need to study each one of them seperately in order to put them together perfectly, because if one pieze of the puzzle works better, the next piece of the puzzle is going to work better too.  This is what true efficiency is aka getting into the flow.
+
+Example, Laura Robson & Venus Williams, too much looseness at the beginning of the swing means that the lower body doesn't get wound up properly because they are feeling too loose.  The looseness is very important AT at particular stage,  is needed only at certain points, but lower body must get wound up to produce drive in the right place.
+
+12:40 Kata 1 Explanation:  Wind the bottom parts but stop at certain parts, which will create more speed in the unwinding of the upper parts.   A feeling of
+being tighter and more forceful down below to gradually more flexible and loose and lighter as we go higher above.
+
+14;00 1.  Feet	Winding bottom parts should be restricted solid tighter coils / movements.   Feel a turn and a stop, then another turn and stop rather than large sweeping actions.
+Left foot 45*, right foot too line up with intersection with front toe to the target, shoulder width apart.  Coil and drive into the ground
+
+15:30 Breath: Should feel it below, if it's too high in chest, it's tightness. Breath is activity / energy center.  Feel activity in the gut with the breath. 
+Let the shoulders relax, fully committed mind set, not jumpy mind 
+
+17:25  First move; good arm positioning, create a form with hands above waist.  
+
+18:20 Start with a turn and a slight dip.  feel that you are going into the balls of the feet.  Feel a flex and a push, like sitting down into a chair
+
+18:45  Start to feel the chin coming up a little bit ,start to lift just slightly.  This will start the feel of bringing the shoulders back. Don't drop the hands to imitiate the toss, because the focus here is to work the legs.
+Trying to make the toss to straight is the cause of a lot of problems on the serve.Let is stay in flow and form not rigid, or it will lead to broken movements.  HOLD FORM.  Elbows out a little bit.
+
+21:00 1.  Grind down, elbows open slightly by using shoulders,  the head will start to come back a little bit, heels slightly off the ground, feel arms as critical to balancing you into the ground. Get good a coiling well, as you start to look up.
+
+KATA 2:  
+
+23:20
+
+23:38 Start to key in on upward target.   
 
 3.3 Forehand Training - Available 7/18/13
 -----------------------------------------
