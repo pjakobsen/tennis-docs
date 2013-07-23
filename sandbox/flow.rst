@@ -280,11 +280,65 @@ Trying to make the toss to straight is the cause of a lot of problems on the ser
 
 21:00 1.  Grind down, elbows open slightly by using shoulders,  the head will start to come back a little bit, heels slightly off the ground, feel arms as critical to balancing you into the ground. Get good a coiling well, as you start to look up.
 
-KATA 2:  
+KATA 2:  take back position to trophy position
 
 23:20
 
-23:38 Start to key in on upward target.   
+23:38 Start to key in on upward target. 
+24:35 It's like your wrist is in cast on the way up, keep it quiet, not wristy, but steady.  This steadyness will focus the energy into the places that you do want to move and coil, and that's number 1 the big parts.
+
+Trophy position, arm up and elbow cocked back like bow and arrow.  how do we get there?
+
+25:30 We continue coiling the shoulders after the hips are already done coiling.  The shoulders are looser than the hips, they are going to go back more.
+Feel a tension in the hips.  
+26:10 As I continue to coil, I continue to tilt back face looking straight up, and feel more flexing down in the knees as part of the balancing. 
+Getting more sky oriented is driving me deeper down into the ground in order to balance.  
+26:42 Final and fullest rotation back with the shoulders. THe left arm is naturally going to want to balance you, like you are holding on to something to keep yourself steady.
+
+27:45 When the head goes back, feel like you are squeezing a  ball on the back of your neck.
+
+28:10 Feel the shoulders turn and rotate a little bit, Roddick style, so  you can look at knuckles, it's natural federer does it.  The racquet hand should naturally turn as well.
+29:00 Feel your elbows go out a little bit at the end.
+
+29:45 What does the right arm do?  Pull shoulder back like pulling bow and arrow.  Draw elbow and shoulder back, and let the hand come inward.
+30:05 Don't try to feel swinging in the racquet in order to feel power. Swing stuff around causes stiffness in the midsection, taking coil energy away.
+
+30:30 Imagine coiling and uncoiling inside a cone.  
+31:03 * Practice the "large gears""
+
+31:40 Bring the hands in , not let them go out to destabilize.  Takes confidence and patience to get beyond wanting to feel power and speed in the forceful feelin in racquet. 
+
+KATA 3:  33:10  Back of the ladder
+
+Starting to access the upper coils.  Tap into gravity somehow.
+34:45 Get everything back behind me falling using gravity on the back side.
+35:30 Kind of throw the head back which lets everything fall behind you.  Now with the sternum up to the sky, I'm going to push the sternum up and start to come around in a kind of a summersault action.
+36:05 Lift the elbow and feel the hand come in like a karate chop up towards the sky.
+
+KATA 4: 37:10 Trigger to Contact
+dip of the shoulder starts cartwheeling action, but don't pull too hard.  IT's the hop that initiates the cartwheel
+37:30 Imagine bringing your karate chop hand on to the outside of the ball.  This is where your hand would be if you were just throwing a ball into the sky.  
+38:18 Grab the ball and feel as if you are going to throw it to the sky.  Grab, twist and release up into the sky.  Now the hand is loose, the hand is towards the ground.
+39:10 There is a little coiling action in the wrist. Waving your hair around. Karate chop with fingers back as much as you can and thumb down, then grab and throw.  
+39:55 The drive, feel the push from the shoulder rotating up into the ear, and push the head forward with the shoulder.  
+40:25 Left shoulder driving your through the cartwheeling action.  Open the right arm pit up into the sky.  
+40:36 To get the cartwheeling action, the hips will push back a little bit, and the left arm will get jammed back into the gut side.
+51:50 Everything should feel engaged in the right moment of the release.  Left leg kicks back as part of the drive to contact
+
+FINAL KATA: Trigger to contact to recovery. Continuation of Uncoiling 
+45:17 Focus on the snap and how to finish to promote that snap.  Free up the shoulder, and concentrate on how to get real speed in the shoulder but very fluid
+45:40 There is a dip to the side with the left shoulder, but don't pull across.
+46:40  Don't square up or straighten the back. you can get more power by straigtening the back, but that's only if you are going to hit down into the court.
+47:10  Don't level yourself out.  When you finish, the right shoulder is still up, scarecrow position
+47:21 Scarecrow finish
+
+
+
+
+
+ 
+ 
+
 
 3.3 Forehand Training - Available 7/18/13
 -----------------------------------------
